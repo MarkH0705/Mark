@@ -1,1 +1,1 @@
-# Hi I´m Mark, a geochemist working as AI engineer🤗
+# Hi I´m Mark, a geologist working as AI engineer🤗
